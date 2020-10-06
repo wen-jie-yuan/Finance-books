@@ -21,6 +21,32 @@
 
 由于GitHub存储空间有限，请大家移步百度网盘获取资源
 
-链接：https://pan.baidu.com/s/15Go7D92iqo4pPtctfNngFw 
-提取码：zf14 
+0.历史
+链接：https://pan.baidu.com/s/1OoQ7_sKWAUv406IhOx9a7Q 
+提取码：1d6p 
+复制这段内容后打开百度网盘手机App，操作更方便哦
+
+1.入门
+链接：https://pan.baidu.com/s/1q6ImrmWZfTXM_pB0tLg3yQ 
+提取码：eps0 
+复制这段内容后打开百度网盘手机App，操作更方便哦
+
+2.初级
+链接：https://pan.baidu.com/s/1xhyAhMKLUiskpBMWVuVLxQ 
+提取码：dr0d 
+复制这段内容后打开百度网盘手机App，操作更方便哦
+
+3.高级
+链接：https://pan.baidu.com/s/1FdzqojGHxWfku_gTiJsDbg 
+提取码：7zs5 
+复制这段内容后打开百度网盘手机App，操作更方便哦
+
+4.安全边际
+链接：https://pan.baidu.com/s/1q9wBD4kzkvutz9lUlLeJ7w 
+提取码：pq7z 
+复制这段内容后打开百度网盘手机App，操作更方便哦
+
+5.价值投资
+链接：https://pan.baidu.com/s/1lnsvBAAeKotaRj-WoEZefw 
+提取码：3jwn 
 复制这段内容后打开百度网盘手机App，操作更方便哦
