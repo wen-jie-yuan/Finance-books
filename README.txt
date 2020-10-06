@@ -21,7 +21,6 @@
 
 由于GitHub存储空间有限，请大家移步百度网盘获取资源
 
-提取链接：
-链接：https://pan.baidu.com/s/1Nce6n177gthkZ4keIPkg1Q 
-提取码：gmo5 
+链接：https://pan.baidu.com/s/15Go7D92iqo4pPtctfNngFw 
+提取码：zf14 
 复制这段内容后打开百度网盘手机App，操作更方便哦
