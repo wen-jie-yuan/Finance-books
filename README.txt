@@ -12,8 +12,8 @@
 
 2021.3.12 补充巴菲特2021年的信和张磊的《价值》
 流水不争先，争的是滔滔不绝。
-链接：https://pan.baidu.com/s/1EFQXcw3fpQlwPTKi_o0uJQ 
-提取码：vbqm 
+链接：https://pan.baidu.com/s/1ehr8MszlfhsH0_viM7oPog 
+提取码：ckzu 
 复制这段内容后打开百度网盘手机App，操作更方便哦
 
 前三部分建议阅读：
@@ -75,4 +75,9 @@
 9.进阶思考
 链接：https://pan.baidu.com/s/1hp1oEmANlZcisP-KYh_wMQ 
 提取码：dy34 
+复制这段内容后打开百度网盘手机App，操作更方便哦
+
+10.终极思考
+链接：https://pan.baidu.com/s/1NTt8tuxFbYy3rHwd0Sg0hA 
+提取码：vqr5 
 复制这段内容后打开百度网盘手机App，操作更方便哦
