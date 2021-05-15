@@ -33,9 +33,9 @@
 复制这段内容后打开百度网盘手机App，操作更方便哦
 
 1.入门
-链接：https://pan.baidu.com/s/19X8SJRQMW-kve7yo_0MRWw 
-提取码：o8a2 
-复制这段内容后打开百度网盘手机App，操作更方便哦
+链接：https://pan.baidu.com/s/1X7JybrHT9BrCrnZidZJcJw
+提取码：icjd
+
 
 2.初级
 链接：https://pan.baidu.com/s/1xhyAhMKLUiskpBMWVuVLxQ 
