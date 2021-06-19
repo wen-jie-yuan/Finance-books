@@ -38,6 +38,6 @@
 10.[终极思考](https://pan.baidu.com/s/1NTt8tuxFbYy3rHwd0Sg0hA)提取码：vqr5 
 
 2021.3.12  
-补充巴菲特2021年的信和张磊的[《价值》](https://pan.baidu.com/s/1ehr8MszlfhsH0_viM7oPog)提取码：ckzu
+补充巴菲特2021年的信和张磊的[《价值》](https://pan.baidu.com/s/1ehr8MszlfhsH0_viM7oPog)提取码：ckzu  
 流水不争先，争的是滔滔不绝。
  
