@@ -27,9 +27,9 @@
 
 4.[交易心里学](https://pan.baidu.com/s/16zdVV7ezmhuTPnYf59OsIQ)提取码：1234 
 
-5.[历史](https://pan.baidu.com/s/1nqAePaBqh5v7EPpRVHspRw)提取码：3jwn 
+5.[历史](https://pan.baidu.com/s/1nqAePaBqh5v7EPpRVHspRw)提取码：1234 
 
-6.[估值模型](https://pan.baidu.com/s/1QwVdqUMOd7y44HkSGvvlgQ)提取码：ib79 
+6.[估值模型](https://pan.baidu.com/s/1QwVdqUMOd7y44HkSGvvlgQ)提取码：1234 
 
 
 
