@@ -1,10 +1,10 @@
-## 理财书籍整理，欢迎star和一起更新。
+## 理财书籍整理，欢迎star和一起更新。后续会增加一些期货和会计分析的内容。（2021.7.23更新）
 ### 本书单在阅读总结的基础上，将各类财务书籍进行整理归类序。从入门到进阶，建议按顺序进行阅读。
 #### 大纲
-- 1、2、3这三章为基础部分，主要帮助你树立理财的观念与信心；
-- 4-7章为思维培训，前两部分讲解安全边际和价值投资的作用，后两部分讲解如何分析公司价值，确立公司的根本价值，继而选择优秀公司；
-- 第8章讲解基金投资，建议缺少足够精力的投资者重点关注该部分。
-- 9-11则从现实角度思考，主要锻炼个人的价值观念体系，从根源出发，分析经济社会运行的原理。
+- 投资入门内包含一些通俗易懂的书籍可以快速入门投资这件事；
+- 第一章讲述基金投资；
+- 第二章讲述股票投资。
+- 3-5章为进阶部分，需要在充分阅读前者的基础上再阅读，会有不一样的收获。
 
 前三部分建议阅读：
 - 1：富爸爸穷爸爸、小狗钱钱
@@ -15,31 +15,21 @@
 
 由于GitHub存储空间有限，请大家移步百度网盘获取资源
 
-[目录](https://github.com/wen-jie-yuan/Finance-books-/blob/master/table.md)
+[目录](https://github.com/wen-jie-yuan/Finance-books-/blob/master/table.md)（具体书单可见目录）
 
-0.[历史](https://pan.baidu.com/s/1OoQ7_sKWAUv406IhOx9a7Q)提取码：1d6p 
+0.[投资入门](https://pan.baidu.com/s/1E-nD029AIDu9D7qZNp7lyA)提取码：1234 
 
-1.[入门](https://pan.baidu.com/s/1X7JybrHT9BrCrnZidZJcJw)提取码：icjd
+1.[基金投资](https://pan.baidu.com/s/1xDMV-77N57JOOmxiX1FElQ)提取码：1234 
 
-2.[初级](https://pan.baidu.com/s/1xhyAhMKLUiskpBMWVuVLxQ)提取码：dr0d 
+2.[股票投资](https://pan.baidu.com/s/1cfgSHEJ1rZax4hV0mOkp7w)提取码：1234  
 
-3.[高级](https://pan.baidu.com/s/1FdzqojGHxWfku_gTiJsDbg)提取码：7zs5 
+3.[财报分析](https://pan.baidu.com/s/1fnC0XiOzUecjFcnjZMRAag)提取码：1234 
 
-4.[安全边际](https://pan.baidu.com/s/1q9wBD4kzkvutz9lUlLeJ7w)提取码：pq7z 
+4.[交易心里学](https://pan.baidu.com/s/16zdVV7ezmhuTPnYf59OsIQ)提取码：1234 
 
-5.[价值投资](https://pan.baidu.com/s/1lnsvBAAeKotaRj-WoEZefw)提取码：3jwn 
+5.[历史](https://pan.baidu.com/s/1nqAePaBqh5v7EPpRVHspRw)提取码：3jwn 
 
-6.[财务分析](https://pan.baidu.com/s/1OZC-vhaAwzzRj8RIRUz2Zw)提取码：ib79 
+6.[估值模型](https://pan.baidu.com/s/1QwVdqUMOd7y44HkSGvvlgQ)提取码：ib79 
 
-7.[价值分析](https://pan.baidu.com/s/17l9O_rycQyN511aOHz3kXA)提取码：ro8j 
 
-8.[基金实战](https://pan.baidu.com/s/1iLjN8xkI_FPF21yWlC7hXg)提取码：a10x 
 
-9.[进阶思考](https://pan.baidu.com/s/1hp1oEmANlZcisP-KYh_wMQ)提取码：dy34 
-
-10.[终极思考](https://pan.baidu.com/s/1NTt8tuxFbYy3rHwd0Sg0hA)提取码：vqr5 
-
-2021.3.12  
-补充巴菲特2021年的信和张磊的[《价值》](https://pan.baidu.com/s/1ehr8MszlfhsH0_viM7oPog)提取码：ckzu  
-流水不争先，争的是滔滔不绝。
- 
