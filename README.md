@@ -17,19 +17,16 @@
 
 [目录](https://github.com/wen-jie-yuan/Finance-books-/blob/master/table.md)（具体书单可见目录）
 
-0.[投资入门](https://pan.baidu.com/s/1E-nD029AIDu9D7qZNp7lyA)提取码：1234 
+- 0.[投资入门](https://pan.baidu.com/s/1E-nD029AIDu9D7qZNp7lyA)提取码：1234 
 
-1.[基金投资](https://pan.baidu.com/s/1xDMV-77N57JOOmxiX1FElQ)提取码：1234 
+- 1.[基金投资](https://pan.baidu.com/s/1xDMV-77N57JOOmxiX1FElQ)提取码：1234 
 
-2.[股票投资](https://pan.baidu.com/s/1cfgSHEJ1rZax4hV0mOkp7w)提取码：1234  
+- 2.[股票投资](https://pan.baidu.com/s/1cfgSHEJ1rZax4hV0mOkp7w)提取码：1234  
 
-3.[财报分析](https://pan.baidu.com/s/1fnC0XiOzUecjFcnjZMRAag)提取码：1234 
+- 3.[财报分析](https://pan.baidu.com/s/1fnC0XiOzUecjFcnjZMRAag)提取码：1234 
 
-4.[交易心里学](https://pan.baidu.com/s/16zdVV7ezmhuTPnYf59OsIQ)提取码：1234 
+- 4.[交易心里学](https://pan.baidu.com/s/16zdVV7ezmhuTPnYf59OsIQ)提取码：1234 
 
-5.[历史](https://pan.baidu.com/s/1nqAePaBqh5v7EPpRVHspRw)提取码：1234 
+- 5.[历史](https://pan.baidu.com/s/1nqAePaBqh5v7EPpRVHspRw)提取码：1234 
 
-6.[估值模型](https://pan.baidu.com/s/1QwVdqUMOd7y44HkSGvvlgQ)提取码：1234 
-
-
-
+- 6.[估值模型](https://pan.baidu.com/s/1QwVdqUMOd7y44HkSGvvlgQ)提取码：1234 
